@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pid101
-- 👀 I’m interested in bot spam
+- 👀 I’m interested in gai me may
 - 🌱 I’m currently learning i know
 - 💞️ I’m looking to collaborate on code 
 - 📫 How to reach me 
